@@ -1,1 +1,1 @@
-[Click here](https://sjsnowball.github.io/)https://sjsnowball.github.io/)
+[Click here](https://sjsnowball.github.io/)
